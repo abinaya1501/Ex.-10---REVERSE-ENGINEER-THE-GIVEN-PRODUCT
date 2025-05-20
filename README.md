@@ -32,7 +32,11 @@
 
 ### Output:
 
-![441982439-3f7edea5-7bd2-4cbe-9b58-7e2c4dd259bb](https://github.com/user-attachments/assets/b0b137cc-fe24-43ec-9f4c-0910dee4f8b7)
+![Screenshot 2025-05-20 174343](https://github.com/user-attachments/assets/98aec6ae-1190-4d92-9611-43d83d7f942e)
+
+
+![Screenshot 2025-05-20 174406](https://github.com/user-attachments/assets/81b9b8c5-9f20-41e0-b87e-780f56ba43a6)
+
 
 
 ### Name: ABINAYA.A
